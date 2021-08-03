@@ -1,1 +1,1 @@
-Curso maravilhoso, estou aprendendo do zero e estou conseguindo!!
+Estou adorando fazer esse curso e aprender do zero como programar!!
